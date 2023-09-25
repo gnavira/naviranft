@@ -1,4 +1,4 @@
-# navira nft profile picture
+# navira nft profile pictures
 
 - 0xnavira (1).jpg
 - 0xnavira (2).jpg
